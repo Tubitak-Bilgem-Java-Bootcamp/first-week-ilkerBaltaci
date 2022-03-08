@@ -1,0 +1,1 @@
+# İlk Hafta yaptığım ödevlerin olduğu repo
